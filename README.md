@@ -7,4 +7,4 @@ my youtube channel on https://www.youtube.com/channel/UCRy9cdEQ0B1BJ1ZFK7pEcDA
 
 regards,
 
-JE TECH
+Arya Nicosa (JE TECH)
